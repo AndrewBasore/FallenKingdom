@@ -4,9 +4,7 @@ This is a repository for a novel
 
 
 
-This story takes place in an inconceivable future. This world is full of ritual and technology that is indistinguishable
-
-from magick. The goal of this story is to open the readers mind to the magick of existence and identity (and hopefully also the identity and existence of magick in their own world), and the depths of depravity that can be a result of pollution of the divine spirit. 
+This story takes place in an inconceivable future. This world is full of ritual and technology that is indistinguishable from magick. The goal of this story is to open the readers mind to the magick of existence and identity (and hopefully also the identity and existence of magick in their own world), and the depths of depravity that can be a result of pollution of the divine spirit. 
 
 It begins in the peaceful worker fields of the "Sheep" people. They are all male. They stand upright, with thick white wool all over their bodies. Their purpose is to work in the fields high in the mountains their whole life, and they truly know of nothing else. They are all male, and are birthed from their mother ship and consider the long hours of toil in the fields a small price to pay for the luxuries they enjoy. They spend every seventh day in awe and worship of the majestic scenery around them, and every seventh night dancing to music and videos played by one giant projection in the sky. They also enjoy romantic partnerships with each other, which Not everyone is 100% content with this existence, and these gray individuals have opinions and advice for the adolescent lambs of the group about attempting to journey out of the control of The Mothership to find a higher purpose for themselves. 
 
